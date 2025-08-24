@@ -1,2 +1,2 @@
 Hospedaje en La Habana Vieja.
-Casa Particular.
+email:  rentahabanavieja@gmail.com
